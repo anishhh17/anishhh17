@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @anishhh17
-- 🌱 I’m currently learning computer science at PES university
+- 🌱 I’m a B.Tech graduate from PES university
 - 📫 How to reach me ...
 email- anishsurendra7@gmail.com
 
